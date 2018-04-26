@@ -101,6 +101,8 @@ Knowing that you only have room for one passenger in your car (it’s a really s
 
 ---?image=meme.jpg&size=contain
 
+---
+
 ### Be confident of your thoughts and be ready to receive feedback and get into arguments
 
 - If you're not confident with your own idea you won't be able to share your ideas to other which in turn lower the possible selection of ideas.
