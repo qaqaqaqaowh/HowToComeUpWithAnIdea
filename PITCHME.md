@@ -101,7 +101,7 @@ Knowing that you only have room for one passenger in your car (it’s a really s
 
 ---
 
-![Meme](/meme.jpg?size=auto 100%)
+![Meme](/meme.jpg?size=auto 90%)
 
 ---
 
