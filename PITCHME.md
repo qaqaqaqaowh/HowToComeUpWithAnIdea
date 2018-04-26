@@ -74,10 +74,13 @@ You’re driving down the road in your car on a wild and stormy night. The weath
 - The perfect partner you have been dreaming about (your “soulmate”).
 
 Knowing that you only have room for one passenger in your car (it’s a really small car), which one would you choose to offer a ride to? And why?
+
 +++
+
 ## Start thinking!
 
 +++
+
 ## “I would give the car keys to my old friend, and let him take the old woman to the hospital. Then I would stay behind and wait for the bus with the partner of my dreams.” - 16 Blocks
 
 ---
