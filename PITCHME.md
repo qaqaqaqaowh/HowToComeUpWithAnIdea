@@ -99,7 +99,9 @@ Knowing that you only have room for one passenger in your car (it’s a really s
 
 ## “I would give the car keys to my old friend, and let him take the old woman to the hospital. Then I would stay behind and wait for the bus with the partner of my dreams.” - 16 Blocks
 
----?image=meme.jpg&size=contain
+---
+
+![Meme](/meme.jpg)
 
 ---
 
