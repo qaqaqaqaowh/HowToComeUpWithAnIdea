@@ -8,6 +8,9 @@
 ---
 ## What's an idea?
 ### A thought or suggestion as a possible course of action
+![Light](https://cmkt-image-prd.global.ssl.fastly.net/0.1.0/ps/945473/580/580/m1/fpnw/wm0/light-bulb-.jpg?1454093067&s=249137b51ba7ab5f697ceecf56343267)
++++
+![Eureka](https://www.thehistoryvault.co.uk/wp-content/uploads/2014/09/Eureka.gif)
 ---
 ## Identifying the problem
 +++
