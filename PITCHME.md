@@ -59,6 +59,13 @@
 - Don't stick to the norm
 - Relate loosely connected concepts
 
++++
+## To Bend The Spoon, you must first know
+
+![Spoon](https://i1.wp.com/dotelekinesis.com/wp-content/uploads/2016/01/How-to-bend-a-spoon-with-your-mind.jpg?fit=600%2C300)
+
+## There is No Spoon
+
 ---
 ## Storytime
 - Problem : How do we balance power in a monarchy while maintaining a monarchy?
@@ -111,3 +118,12 @@ Knowing that you only have room for one passenger in your car (it’s a really s
 - Bad idea can be used as a reference to come up with a better ideas
 
 ---
+### You should have learnt:
+- Identifying the problem
+- Preparing your foundations
+- Coming up with ideas
+- Knowing what's good
+
+--- 
+
+# QnA
